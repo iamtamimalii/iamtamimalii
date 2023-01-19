@@ -16,7 +16,8 @@ Here are some ideas to get you started:
 -->
 
 Checkout : https://linktr.ee/iamtamimalii to contact me.
-# About Tamim Alii
+
+# About TAMIM ALII
 
 BS-Computer Science student, Currently enrolled 3rd year student seeking for internship to obtain practical experience, boost up my confidence and working skills. The capacity to do projects on schedule both alone and in teams. Dependable and trustworthy, eager to learn and develop with your business. 
 
